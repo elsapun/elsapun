@@ -7,4 +7,4 @@
 - 🤔 Sou novo no mundo da programação
 
 
-![](https://media.tenor.com/ZDcjtTqAlqQAAAAC/claudia-raia-curriculum.gif)
+![]([https://media.tenor.com/ZDcjtTqAlqQAAAAC/claudia-raia-curriculum.gif](https://media.tenor.com/aFrjZNil9rMAAAAC/doggo-typing.gif))
